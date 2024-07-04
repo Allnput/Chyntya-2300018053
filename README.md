@@ -1,0 +1,2 @@
+# Chyntya-2300018053
+KODE SOAL C
